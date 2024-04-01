@@ -1,4 +1,4 @@
-![hello-saurav](https://raw.githubusercontent.com/sauravhiremath/sauravhiremath/master/icon/animated-me.gif?token=AG2QVWYXDC4UY2XDPIZKBLC7E3JPO)
+![hello-ayusj](https://raw.githubusercontent.com/sauravhiremath/sauravhiremath/master/icon/animated-me.gif?token=AG2QVWYXDC4UY2XDPIZKBLC7E3JPO)
 
 <h1 align="center">
   Welcome to my little 🌎
